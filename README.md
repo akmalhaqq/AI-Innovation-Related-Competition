@@ -1,1 +1,1 @@
-# AI-Innovation-Related-Competition
+# AI-Innovation-And-Data-Related-Competition
